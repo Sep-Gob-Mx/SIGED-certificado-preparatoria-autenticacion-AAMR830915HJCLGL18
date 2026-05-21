@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AAMR830915HJCLGL18
+AAMR830915HJCLGL18
